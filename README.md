@@ -13,7 +13,7 @@ Trong vòng 6-12 tháng tới, mục tiêu của tôi là:
 
 ### 🏆 Thành tích Học thuật
 * **Học sinh Xuất sắc** 3 năm liên tiếp (2022-2025).
-* Đạt **Giải Ba môn Vật Lý** trong Kỳ thi Học sinh Giỏi cấp tỉnh (Lớp 10, 11).
+* Đạt **Giải Ba môn Vật Lý** trong Kỳ thi Học sinh Giỏi cấp tỉnh.
 * Đạt danh hiệu **"Học sinh 3 Tốt"** – Năm học 2023-2024.
 
 ### 🌟 Kỹ năng & Kinh nghiệm Lãnh đạo (Soft Skills)
