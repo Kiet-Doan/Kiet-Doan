@@ -25,7 +25,7 @@ Là một người mới trong lĩnh vực IT, tôi tự tin vào **các kỹ n�
 * **Giao tiếp & Truyền thông (Communication):**
     * [cite_start]Tích cực tham gia và tổ chức **trên 30 hoạt động** Đoàn/Hội các cấp (trường, thành phố, tỉnh) trong 3 năm cấp 3. [cite: 27]
     * [cite_start]Có kinh nghiệm làm **MC (Người dẫn chương trình)** cho nhiều sự kiện quan trọng cuả trường THPT. [cite: 58, 59, 60, 61, 62, 63]
-    * [cite_start]Đại diện học sinh tham gia phỏng vấn trên **Đài Tiếng nói Việt Nam (VOV)** và **Báo và Đài phát thanh và truyền hình Cà MAu (CTV)**. [cite: 51, 52]
+    * [cite_start]Đại diện học sinh tham gia phỏng vấn trên **Đài Tiếng nói Việt Nam (VOV)** và **Báo và Đài phát thanh và truyền hình Cà Mau (CTV)**. [cite: 51, 52]
 * [cite_start]**Thành tích Đội nhóm:** Thành viên của đội đạt **Giải Nhất Hội thi tuyên truyền An toàn Giao thông** cấp tỉnh Cà Mau năm 2023. [cite: 32]
 
 ### 🛠️ Kỹ năng Kỹ thuật (Hard Skills)
